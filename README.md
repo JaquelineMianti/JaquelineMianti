@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Jaqueline Mianti 😁
+## Bem-vindo(a) ao perfil da Jaqueline Mianti 
 
 <div>
    <a href="https://github.com/JaquelineMianti">
